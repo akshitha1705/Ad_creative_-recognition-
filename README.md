@@ -1,1 +1,1 @@
-# Ad_creative_-recognition-
+# Ad_creative_recognition
